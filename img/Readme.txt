@@ -1,0 +1,1 @@
+Photos are taken from Wikipedia. Subject to copyright. 
